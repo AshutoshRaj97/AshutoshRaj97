@@ -1,6 +1,6 @@
 ## Hi, I'm Ashutosh
 
-GTM @ [Clueso](https://clueso.io) (YC W23) · 2x Founder · AI Builder · IIT Madras
+AI Builder · 2x Founder · IIT Madras
 
 ---
 
